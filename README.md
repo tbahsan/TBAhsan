@@ -32,8 +32,8 @@
 > *"I love playing with words — and I love whatever I love."*
 
 I'm **TBA** — a writer who codes, a developer who rhymes. By day I'm a
-**Web Designer at [Ween Technology](https://bd.linkedin.com/in/tbahsan)**
-(since 2019), crafting responsive web apps, custom themes and creative
+**Web Designer at [AKOTA IT](https://akotait.com/)**
+, crafting responsive web apps, custom themes and creative
 digital experiences; by night I write Bengali poetry & short stories, and
 recite them into a microphone. Some people collect stamps — I collect
 **corners of the internet** 🕸️
